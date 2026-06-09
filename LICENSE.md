@@ -1,4 +1,4 @@
-# 
+# Experience evade like never before with evade Script premium, the #1 Script. Includes silent aim and unlimited stamina for unbeatable performance.
 
 
 
